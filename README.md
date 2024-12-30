@@ -1,4 +1,4 @@
-# testing-shit just testing shit and  nothing more........................,,,,,,,,,,,,.,,,,
+# testing-shit just testing shit and  nothing more.........................,,,,,,,,,,,,.,,,,
 # still nothing.....................................................,,,,,,,,,,,,.,,,
 # thinking about something......................................,,,,,,,,,,,.,,,,
 # something soon.........................................,,,,,,,,,.,,,,,,
